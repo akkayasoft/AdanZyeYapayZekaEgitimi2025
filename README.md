@@ -1,0 +1,1 @@
+# AdanZyeYapayZekaEgitimi2025
